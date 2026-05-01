@@ -1,1 +1,0 @@
-![[Exploring_Networking_with_Cisco_Packet_Tracer_certificate_starr-b2-parmacityschools-org_14c04a9c-8ddd-4f62-9c1a-386c357a0d52.pdf]]

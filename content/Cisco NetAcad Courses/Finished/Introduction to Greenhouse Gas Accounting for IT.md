@@ -1,1 +1,0 @@
-![[Introduction_to_Greenhouse_Gas_Accounting_for_IT_certificate_starr-b2-parmacityschools-org_4cb9145a-71f1-4a56-9a46-0965f05871db.pdf]]
